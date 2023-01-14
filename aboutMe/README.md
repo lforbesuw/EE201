@@ -1,4 +1,4 @@
-## Welcome to my aboutMe
+## Hi, I'm Lorenz Forbes and this is my aboutMe
 
 1. I am a junior majoring is Electrical and Computer Engineering but not too sure about my pathway yet
 2. I like to read manhwa/manga :open_book: and watch anime :tv:
